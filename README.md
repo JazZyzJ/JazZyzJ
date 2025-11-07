@@ -1,4 +1,4 @@
-- 🌱 I’m currently a sophomore in Turing Class, Zhejiang University CKC College
+- 🌱 I’m currently a junior in Turing Class, Zhejiang University CKC College
 - 💻 Majoring in Computer Science
 - ⚡ My hobbies: 🎷 🏀 🎱
 - 🔥 Fan for Messi🇦🇷 & Stephen Curry3️⃣0️⃣
